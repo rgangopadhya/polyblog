@@ -2,6 +2,7 @@
 layout: post
 title:  "The Problem with Business Thinking"
 date:   2018-05-16 18:06:56 -0700
+author: raja
 categories: jekyll update
 ---
 
