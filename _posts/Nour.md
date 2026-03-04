@@ -1,0 +1,11 @@
+I like Youtube. Or, rather, the communities of creators there. The socialist youtube stuff has been very interesting... 
+
+
+
+Seeing how Nour has changed... the way she talks is very different. She has always been very concerned with the environment: her number one issue. She truly loves being outside, the beauty of nature, and natural sport: climbing, mountain biking. When I first remember meeting her, she had just started at Berkeley, and she loved it. It was a perfect fit for her. She studied environmental economics and joined the Snowboarding club. Afterward, she lived with a community of artists in Oakland, worked as an environmental consultant, and climbed a fuck ton. She absorbed the Bay Area vibe, including some of the worker-oriented politics. I remember when she attended the strikes at the Port of Oakland. She lived a working-class life, married a kind-hearted, well-read man who was truly working class.
+
+Something I didn't have the perception to observe on my own, at first, but Meia noticed immediately, was that she comes from some money. To be an international student more or less guarantees that. Though she and Jeff later lived in a cramped and unbearably cold one-bedroom apartment on Howth Ave in Piedmont (which Meia would later sublet), she had another home waiting for her. Her mother, the founder of a successful pharmaceutical business in Dubai, was not supportive of her daughter's life decisions. Jeff was a threat to her mother, because he meant Nour would have a green card, and thus be able to stay in America, and not come back to Dubai.
+
+Nour and I share many things in common, one of them being that we are both out of place. Though Nour is Syrian, she was born in Canada (and has Canadian citizenship), and the family moved quickly to Dubai. Her love of the outdoors, outspokenness, and curiosity stood out in a city concerned with image, with consumption. So, I thought she was very much at home in California, and especially in Oakland.
+
+Having only known her as an ardent Californian with a punk aesthetic, biking the streets of Oakland in a fixie, 
